@@ -1,0 +1,1 @@
+# Comptes pour macOS
